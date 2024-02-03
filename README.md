@@ -1,1 +1,2 @@
-# Techstore
+tekster e is an UNI open Internet store version by difference Tech and you can also get help with your phone computer order Tech...
+#Techstore
